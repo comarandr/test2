@@ -1,0 +1,1 @@
+Modifica al contenuto da parte del fisso
